@@ -1,6 +1,6 @@
 - im husker
 - I like games, EDM, rock, classical, and trap, my favorite games are: changed, ultrakill, and tf2
-- im learning nothing, just here to figure coding out and shit
+- im learning nothing, im just here for game websites and proxys
 - not doing any collabs (not yet anyway)
 - my pronouns are: He/Them
 - Fun fact about me: I know how to make a pipebomb and grenade from things around my house, yes I've tested them, it was fun :)
