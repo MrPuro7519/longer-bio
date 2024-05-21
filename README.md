@@ -4,6 +4,7 @@
 - not doing any collabs (not yet anyway)
 - my pronouns are: He/Them
 - Fun fact about me: I know how to make a pipebomb and grenade from things around my house, yes I've tested them, it was fun :)
+- i like to blow things up and set things on fire... whatever it may be
 - if you want a good proxy that works (kinda): https://github.com/SevenworksDev/tProxy (NOTE NOT MINE)
 
 <!---
